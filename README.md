@@ -6,4 +6,8 @@ Me chamo Rafaella Buss
 - estou me desenvolvendo na linguagem JavaScript
 - utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Voê pode entrar em contato comigo:00001098517532sp@al.educacao.sp.gov.br
+### Você pode entrar em contato comigo:
+
+
+00001098517532sp@al.educacao.sp.gov.br
+@rafaella.buss
