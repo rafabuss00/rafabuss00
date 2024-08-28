@@ -11,3 +11,5 @@ Me chamo Rafaella Buss
 00001098517532sp@al.educacao.sp.gov.br
 
 @rafaella.buss
+
+![image](https://github.com/user-attachments/assets/9dcb2bcf-c901-416c-80fb-3443a7c439f9)
