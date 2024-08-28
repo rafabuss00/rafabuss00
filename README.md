@@ -12,5 +12,4 @@ Me chamo Rafaella Buss
 
 @rafaella.buss
 
-
-
+![](https://tenor.com/pt-BR/view/giovanna-giovanna-lancellotti-globo-netflix-novela-gif-24422006)
